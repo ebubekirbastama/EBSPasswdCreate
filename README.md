@@ -9,4 +9,3 @@
 ![www.ebubekirbastama.com](https://raw.githubusercontent.com/ebubekirbastama/EBSPasswdCreate/main/ebs1.png)
 ![www.ebubekirbastama.com](https://raw.githubusercontent.com/ebubekirbastama/EBSPasswdCreate/main/ebs2.png)
 
-https://www.youtube.com/watch?v=p-rc5bd47t8&t=6s
